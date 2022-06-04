@@ -1,0 +1,1 @@
+This project is to showcase my basic skills I have learned thus far. I aim to show my ability to create neat parapgraphs, links, and attach images.
